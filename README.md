@@ -1,1 +1,1 @@
-Its is a cone of Amazon
+Its is a clone of Amazon
